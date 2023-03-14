@@ -6,7 +6,7 @@
 
 ###
 
-<img align="right" height="150" style="width: auto;" src="https://media.tenor.com/hIqInZE5_xMAAAAC/sharingan-itachi.gif"  />
+<img align="right" height="150" width="200" src="https://media.tenor.com/hIqInZE5_xMAAAAC/sharingan-itachi.gif"  />
 
 ###
 
